@@ -10,4 +10,4 @@
 
 🤖>: Gosto de tecnologia
 
-![](https://media1.tenor.com/m/MhpcPDesURYAAAAd/neymar-neymar-jr.gif)
+![](https://media1.tenor.com/m/7JsuBf1xLjAAAAAC/aperta-o-play-neymar-santos.gif)
